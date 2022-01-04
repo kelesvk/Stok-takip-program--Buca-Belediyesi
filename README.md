@@ -1,0 +1,1 @@
+# Stok-takip-program--Buca-Belediyesi
